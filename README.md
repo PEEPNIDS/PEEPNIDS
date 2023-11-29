@@ -29,5 +29,5 @@
 </p>
 
 <p align="center">
-  <img src= "https://images.foxtv.com/static.fox2detroit.com/www.fox2detroit.com/content/uploads/2019/08/1280/720/catfish20pacifier202_1493327236382_3217075_ver1.0.jpg?ve=1&tl=1"
+  <img src= "https://images.foxtv.com/static.fox2detroit.com/www.fox2detroit.com/content/uploads/2019/08/1280/720/catfish20pacifier202_1493327236382_3217075_ver1.0.jpg?ve=1&tl=1" alt= "THAT FISH IS A BABY"
 </p>
