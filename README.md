@@ -45,6 +45,34 @@
 </p>
 
 <p>
+  <img src= "https://64.media.tumblr.com/c97269261c28fe1f1575ec75e29eb1b2/4976d92061e98e5d-dc/s75x75_c1/959446da610242b05a704c8375ad1ca49527a716.gifv" <div> LOBOTOMY SURVIVOR
+</p>
+
+<p align="center">
+  <img src= "https://64.media.tumblr.com/b2cbda2c337d315f716727dbb7d7c120/bf319d3ddf3225b5-cc/s500x750/8c4e3085f638bacb50bf28b58dec5ada82fb733b.gifv"
+</p>
+
+<p>
+  <img src= "https://64.media.tumblr.com/3d40069127c61c31f89728997f4cd5da/c2d28c86dfead1b1-05/s75x75_c1/d838ac5f6e7195bb69c9e77e6879116f1e1bb42e.gifv"<div> AVID ROBLOX PLAYER
+</p>
+
+<p align="center">
+  <img src= "https://64.media.tumblr.com/3dbdad369cf39afc5e21e05b720ccca5/bf319d3ddf3225b5-17/s500x750/297c7527349039634d457f170a487556092554bd.gifv"
+</p>
+
+<p>
+  <img src= "https://64.media.tumblr.com/23304ba0e408e792312e59cfb50d4267/be5456b81def8a82-10/s75x75_c1/37992dd62bc10e991494f4b702cfaf3551b5b086.gifv" <div> ASK ME ABT MY SPECIAL INTERESTS !!!1
+</p>
+
+<p align="center">
+  <img src= "https://64.media.tumblr.com/99ed20a72eba35d03f2350d2cdc21098/bf319d3ddf3225b5-15/s500x750/14b6389a2be50e9eaf37df72034b84ba87a2cd5c.gifv"
+</p> 
+
+<p>
+  <img src= "https://64.media.tumblr.com/5d9892a3ee0b67fdcbb653fa172f063d/f6ea19a317c61353-f4/s75x75_c1/7da07fb7eabcd1c61836d9f31fecd8b41a951d6d.gifv" <div> AUTISTIC AND SEXY
+</p>
+
+<p>
   <h4 <p align="center">
     MAH STAMP AND BLINKIE COLLECTION XPPP
   </h4>
