@@ -67,8 +67,31 @@
 
 <p>
   <h4 <p align="center">
-    MAH STAMP AND BLINKIE COLLECTION XPPP
+    MAH STAMP COLLECTION XPPP
   </h4>
+</p>
+
+<p>
+  <img src= "https://64.media.tumblr.com/7b2d2bc2daaa7e49b4060f50580ac32c/c3de01a11644097d-ba/s100x200/e6cd1fba5d8acfd79709ec6bced89ac4f6f109ef.gifv">
+  <img src= "https://64.media.tumblr.com/19fba37de7773b903739c2e44820c638/57afcf8767df6163-a3/s100x200/9aa9f1ae7a05735bcf14736efbedfed439cbb0dd.gifv"> 
+  <img src= "https://64.media.tumblr.com/522caa4f079fc1130dca421771907420/884eea48d188fc7b-12/s100x200/1be4f6bef86c40a8b6ff05187f2d55ddea441d2d.pnj">
+  <img src= "https://64.media.tumblr.com/13142c5e08eed8649f8e4df1693688cc/884eea48d188fc7b-d5/s100x200/7071a546c70259d8a04c1d560aa6e15c620604ec.pnj">
+  <img src= "https://64.media.tumblr.com/dee528dddc8f595f25a00c74cec9935f/884eea48d188fc7b-f2/s100x200/5dc3517168ebc4f0e7779be1fb8c2d0508d09a9f.pnj">
+  <img src= "https://64.media.tumblr.com/9052e3322942107bc62989d3f7c7b6ef/7d2e6e718dc66141-03/s100x200/f3c715666c172066118519de3e825d6f6d1d5963.gifv">
+  <img src= "https://64.media.tumblr.com/8f81760a02fd37137442e81e51762ebe/7d2e6e718dc66141-7f/s100x200/3598d7c3fb8296525869bba2aad8aeef8c722449.gifv">
+  <img src= "https://64.media.tumblr.com/115a43b391d1fb539055478ef75004c8/509dca664f2eb5e4-84/s250x400/2106894b27fe74ea23ad06b4541085b2d1d2fadf.gifv">
+  <img src= "https://64.media.tumblr.com/f4a73d56002c2db4c98f63ebf98d2abf/509dca664f2eb5e4-af/s100x200/a0c92a3247979ad4457e5604be5750482d4507da.pnj">
+
+</p> 
+
+<p>
+  <h4 <p align="center">
+    MAH BLINKIE COLLECTION O_o
+  </h4>
+</p>
+
+<p>
+  <img src= "https://64.media.tumblr.com/474a10108b49989a9dceecbd3046ba97/e0c6fae31610508d-b2/s250x400/89315f96419e4ed73ee6979acfe23a3b258b8823.gifv">
 </p>
 
 <p align="center">
