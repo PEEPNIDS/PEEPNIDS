@@ -19,5 +19,13 @@
   <img src= "https://64.media.tumblr.com/d63caac8c03e068a2a6bf346d8e5af05/f6ea19a317c61353-c9/s75x75_c1/71db913762deeabed438ccea794b396572a9dde0.gifv" <div>IT / XE
 </P>
 <p>
-  <img src= "https://64.media.tumblr.com/917afaf87f677e8fe88d5410960f32e6/d326ae50f88d51ec-73/s75x75_c1/ccdb951e4edd25c0cf08fbec41fc3ce0054a9ab0.gifv" <div> 
+  <img src= "https://64.media.tumblr.com/917afaf87f677e8fe88d5410960f32e6/d326ae50f88d51ec-73/s75x75_c1/ccdb951e4edd25c0cf08fbec41fc3ce0054a9ab0.gifv" <div>STEROTYPICAL SCEMO KID 
 </p>
+
+<p>
+  <h4 <p align="center">
+    MAH STAMP AND BLINKIE COLLECTION XPPP
+  </h4>
+</p>
+
+![fish-binky-fish](https://github.com/PEEPNIDS/PEEPNIDS/assets/152342383/b80b8de2-afcc-40d4-a506-7a205ca6b89f)
