@@ -31,8 +31,17 @@
 <P>
   <img src= "https://64.media.tumblr.com/d63caac8c03e068a2a6bf346d8e5af05/f6ea19a317c61353-c9/s75x75_c1/71db913762deeabed438ccea794b396572a9dde0.gifv" <div> IT / XE
 </P>
+
+<p align="center">
+  <img src= "https://64.media.tumblr.com/abfec9ecdc8b5e98c353133930dbc9db/bf319d3ddf3225b5-c9/s500x750/7e89a65331f80c5a168b2299a6c2f5399e793500.gifv"
+</p>
+
 <p>
   <img src= "https://64.media.tumblr.com/917afaf87f677e8fe88d5410960f32e6/d326ae50f88d51ec-73/s75x75_c1/ccdb951e4edd25c0cf08fbec41fc3ce0054a9ab0.gifv" <div> STEROTYPICAL SCEMO KID 
+</p>
+
+<p align="center">
+  <img src= "https://64.media.tumblr.com/8e66135dc67832b395ff523032f00e97/bf319d3ddf3225b5-3b/s500x750/d3eb5af07d40b001459077ad55bb3f6ac12a3d34.gifv"
 </p>
 
 <p>
