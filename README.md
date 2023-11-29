@@ -28,4 +28,6 @@
   </h4>
 </p>
 
-![fish-binky-fish](https://github.com/PEEPNIDS/PEEPNIDS/assets/152342383/b80b8de2-afcc-40d4-a506-7a205ca6b89f)
+<p align="center">
+  <img src= "https://media.tenor.com/BZXFWq4qDvIAAAAd/fish-binky-fish.gif"
+</p>
