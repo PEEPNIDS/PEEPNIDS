@@ -18,18 +18,15 @@
 </p>
 
 <P>
- 𖤐 <img src= "https://64.media.tumblr.com/98d05a71180817a9b5015195b0f3384b/f6ea19a317c61353-54/s75x75_c1/941bd585ed392d8859593f873bbd11bd70dfd8fe.gifv" <div> JUUZOU SUZUYA INTROJECT 
+  <img src= "https://64.media.tumblr.com/98d05a71180817a9b5015195b0f3384b/f6ea19a317c61353-54/s75x75_c1/941bd585ed392d8859593f873bbd11bd70dfd8fe.gifv" <div> 𖤐 JUUZOU SUZUYA INTROJECT 
 </P>
-<p align="center">
-   <b></b>
-</p>
 
 <p align="center">
   <img src= "https://64.media.tumblr.com/34f7859b1e4d3416f47b3b2b34e4b131/bf319d3ddf3225b5-5b/s500x750/fb33e726c4786d67746f5ef1ee5eecffb761dcb1.gifv"
 </p>
 
 <P>
-  <img src= "https://64.media.tumblr.com/d63caac8c03e068a2a6bf346d8e5af05/f6ea19a317c61353-c9/s75x75_c1/71db913762deeabed438ccea794b396572a9dde0.gifv" <div> IT / XE
+  <img src= "https://64.media.tumblr.com/d63caac8c03e068a2a6bf346d8e5af05/f6ea19a317c61353-c9/s75x75_c1/71db913762deeabed438ccea794b396572a9dde0.gifv" <div> ☆ IT / XE
 </P>
 
 <p align="center">
@@ -37,7 +34,7 @@
 </p>
 
 <p>
-  <img src= "https://64.media.tumblr.com/917afaf87f677e8fe88d5410960f32e6/d326ae50f88d51ec-73/s75x75_c1/ccdb951e4edd25c0cf08fbec41fc3ce0054a9ab0.gifv" <div> STEROTYPICAL SCEMO KID 
+  <img src= "https://64.media.tumblr.com/917afaf87f677e8fe88d5410960f32e6/d326ae50f88d51ec-73/s75x75_c1/ccdb951e4edd25c0cf08fbec41fc3ce0054a9ab0.gifv" <div> 𖤐 STEROTYPICAL SCEMO KID 
 </p>
 
 <p align="center">
@@ -45,7 +42,7 @@
 </p>
 
 <p>
-  <img src= "https://64.media.tumblr.com/c97269261c28fe1f1575ec75e29eb1b2/4976d92061e98e5d-dc/s75x75_c1/959446da610242b05a704c8375ad1ca49527a716.gifv" <div> LOBOTOMY SURVIVOR
+  <img src= "https://64.media.tumblr.com/c97269261c28fe1f1575ec75e29eb1b2/4976d92061e98e5d-dc/s75x75_c1/959446da610242b05a704c8375ad1ca49527a716.gifv" <div> ☆ LOBOTOMY SURVIVOR
 </p>
 
 <p align="center">
@@ -53,7 +50,7 @@
 </p>
 
 <p>
-  <img src= "https://64.media.tumblr.com/3d40069127c61c31f89728997f4cd5da/c2d28c86dfead1b1-05/s75x75_c1/d838ac5f6e7195bb69c9e77e6879116f1e1bb42e.gifv"<div> AVID ROBLOX PLAYER
+  <img src= "https://64.media.tumblr.com/3d40069127c61c31f89728997f4cd5da/c2d28c86dfead1b1-05/s75x75_c1/d838ac5f6e7195bb69c9e77e6879116f1e1bb42e.gifv"<div> 𖤐 AVID ROBLOX PLAYER
 </p>
 
 <p align="center">
@@ -61,16 +58,12 @@
 </p>
 
 <p>
-  <img src= "https://64.media.tumblr.com/23304ba0e408e792312e59cfb50d4267/be5456b81def8a82-10/s75x75_c1/37992dd62bc10e991494f4b702cfaf3551b5b086.gifv" <div> ASK ME ABT MY SPECIAL INTERESTS !!!1
+  <img src= "https://64.media.tumblr.com/23304ba0e408e792312e59cfb50d4267/be5456b81def8a82-10/s75x75_c1/37992dd62bc10e991494f4b702cfaf3551b5b086.gifv" <div> ☆ ASK ME ABT MY SPECIAL INTERESTS !!!1
 </p>
 
 <p align="center">
   <img src= "https://64.media.tumblr.com/99ed20a72eba35d03f2350d2cdc21098/bf319d3ddf3225b5-15/s500x750/14b6389a2be50e9eaf37df72034b84ba87a2cd5c.gifv"
 </p> 
-
-<p>
-  <img src= "https://64.media.tumblr.com/5d9892a3ee0b67fdcbb653fa172f063d/f6ea19a317c61353-f4/s75x75_c1/7da07fb7eabcd1c61836d9f31fecd8b41a951d6d.gifv" <div> AUTISTIC AND SEXY
-</p>
 
 <p>
   <h4 <p align="center">
